@@ -1,6 +1,6 @@
 ### Hi ! 👋👋👋
 
-- 🇻🇳 I’m **nik**
+- 🇻🇳 I’m **tqn**
 - 🎼 Listen me on [Soundcloud](https://soundcloud.com/t-quang-ng-c-802275370)
 - 📫 See me on [Facebook](https://www.facebook.com/daynholongthongg/)
 
