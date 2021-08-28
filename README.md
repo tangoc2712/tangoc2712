@@ -1,6 +1,6 @@
 ### Hi ! 👋👋👋
 
-- 🇻🇳 I’m **tqn**
+- 🇻🇳 I’m **Tạ Quang Ngọc**
 - 🎼 Listen me on [Soundcloud](https://soundcloud.com/t-quang-ng-c-802275370)
 - 📫 See me on [Facebook](https://www.facebook.com/daynholongthongg/)
 
